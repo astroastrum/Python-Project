@@ -6,3 +6,8 @@
 
 
 
+
+
+### 은하계의 구조
+
+![img](http://res.heraldm.com/content/image/2019/08/20/20190820000073_0.jpg)
